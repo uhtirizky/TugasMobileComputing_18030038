@@ -1,0 +1,1 @@
+# TugasMobileComputing_18030038
